@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AIexRed
+- 👀 I’m interested in Gaming!
+- 🌱 I’m currently learning Scripting!
+- 💞️ I’m looking to collaborate on no one.
+- 📫 How to reach me Discord: AlexRed#7702
